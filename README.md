@@ -1,0 +1,1 @@
+Our hot chocolate meringue cake gleans its heat from a pinch of cayenne pepper. Piled high with whipped cream, this dreamy confection makes for an impressive presentation.
